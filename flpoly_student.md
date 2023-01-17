@@ -1,6 +1,6 @@
 ## Student Name (or name you would preferred to be called)
 
-### Fall 2022
+### Spring 2023
 
 DSBA student at [Florida Polytechnic University](https://www.floridapoly.edu) currently enrolled in: 
 
